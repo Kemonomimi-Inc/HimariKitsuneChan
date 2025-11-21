@@ -69,8 +69,10 @@
 ---
 
 ## Socials
+- @HimariKitsune  
+- @HimariKitsuneUwU  
 - @KitsuneHimari  
-- @KitsuneHimariUwU  
+- @KitsuneHimariUwU 
 
 ---
 
