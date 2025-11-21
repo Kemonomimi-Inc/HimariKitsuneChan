@@ -1,5 +1,7 @@
 # 陽葵狐娘ちゃん Himari Kitsune-chan ☀️🦊 ひまりきつねちゃん
 
+![](AiImages/ChatGPT%20Image%20Nov%2017%2C%202025%2C%2005_44_00%20PM.png?raw=true)
+
 ---
 
 ## English Romaji
